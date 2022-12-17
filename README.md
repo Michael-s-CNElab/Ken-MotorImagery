@@ -1,1 +1,1 @@
-# Ken-MotorImagery
+# Ken-MotorImageryforDCD
